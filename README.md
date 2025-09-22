@@ -1,5 +1,5 @@
 
-　　　　　　　　　　　　　　　　hi im am 16 year old ⠀𓏵⠀ links dowwn below :P
+　　　　　　　　　　　　　hi im am 16 year old ⠀𓏵⠀ links dowwn below :P
                  
 ![1297fe27826f0d76d9b592ab84accc25](https://github.com/user-attachments/assets/253d47fd-f59f-4a67-8f85-497acd494a65)
 
