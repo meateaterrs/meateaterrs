@@ -1,6 +1,5 @@
 
 　　　　　　　　　　　　　　　　hi im am 16 year old ⠀𓏵⠀ links dowwn below :P
-
 <img width="1280" height="1000" alt="Untitled571_20250925003617" src="https://github.com/user-attachments/assets/88b5c7e3-c7bc-4698-bcee-e937f3adbbab" />
 
 　　　　　　　　　　　　　　　　　　 ྐ✚𓎟𓎡　　cheeseburger and fry　　𓎟𓎡
