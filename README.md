@@ -1,7 +1,8 @@
 
 　　　　　　　　　　　　　　　　hi im am 16 year old ⠀𓏵⠀ links dowwn below :P
                  
-![1297fe27826f0d76d9b592ab84accc25](https://github.com/user-attachments/assets/253d47fd-f59f-4a67-8f85-497acd494a65)
+<img width="1280" height="1280" alt="Untitled491_20250924040126" src="https://github.com/user-attachments/assets/f4c1893e-2022-422a-a74b-9e9e8ee970c7" />
+
 
 　　　　　　　　　　　　　　　　　　 ྐ✚𓎟𓎡　　cheeseburger and fry　　𓎟𓎡
 　　　　　　　　　　　　　　　　　　　　　　　  ⠀ ༙◟ ͜ ◞　⠀. [READ ME](https://docs.google.com/document/d/1MQu1Ryz4iK3uSaoXaiXlzQttN0FPDRFG5SzQdj6PJ10/edit?usp=sharing) ..  [ata](https://meateaters.atabook.org/) 　  ྐ 𓏵　　◟ ͜ ◞ ༙
