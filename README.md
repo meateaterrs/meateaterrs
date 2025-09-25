@@ -7,9 +7,9 @@ hi im am 16 year old ⠀𓏵⠀ links dowwn below :P
 　⠀　⠀　⠀　⠀![tumblr_a853927a912c802816210958d27c1a0c_f748dbf2_250](https://github.com/user-attachments/assets/4366f7c0-d180-406e-a839-746739644b22)
 
 
-　⠀　⠀　 ྐ✚𓎟𓎡　　cheeseburger and fry　　𓎟𓎡
+　⠀　　 ྐ✚𓎟𓎡　　cheeseburger and fry　　𓎟𓎡
   
-　⠀　⠀　 ༙◟ ͜ ◞　⠀. [READ ME](https://docs.google.com/document/d/1MQu1Ryz4iK3uSaoXaiXlzQttN0FPDRFG5SzQdj6PJ10/edit?usp=sharing) ..  [ata](https://meateaters.atabook.org/) 　  ྐ 𓏵　　◟ ͜ ◞ ༙
+　⠀　　 ༙◟ ͜ ◞　⠀. [READ ME](https://docs.google.com/document/d/1MQu1Ryz4iK3uSaoXaiXlzQttN0FPDRFG5SzQdj6PJ10/edit?usp=sharing) ..  [ata](https://meateaters.atabook.org/) 　  ྐ 𓏵　　◟ ͜ ◞ ༙
 
 　⠀　⠀　⠀　⠀![tumblr_a853927a912c802816210958d27c1a0c_f748dbf2_250](https://github.com/user-attachments/assets/0cb416dd-5f7f-41a3-bec7-e2f60e1e8b62)
 
