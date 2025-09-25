@@ -1,6 +1,6 @@
 <img width="370" height="370" alt="tumblr_3eee5144dabaff2e1fc65a0c09764c40_8228dfca_640" src="https://github.com/user-attachments/assets/bb3fb7c0-a6cf-4975-b90b-0b7f06f5f938" />
 
-hi im am 16 year old ⠀𓏵⠀ links dowwn below :P
+　⠀　hi im am 16 year old ⠀𓏵⠀ links dowwn below :P
                 
 <img width="370" height="370" alt="Untitled491_20250924040231" src="https://github.com/user-attachments/assets/fe17755e-a678-4e84-90e7-5e725f056915" />
 
